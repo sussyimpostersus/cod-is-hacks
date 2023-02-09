@@ -1,2 +1,2 @@
-# cod-is-hacks
-hack or all
+go to gliz
+therealgliz
